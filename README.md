@@ -1,1 +1,1 @@
-# random
+https://discord.com/login
